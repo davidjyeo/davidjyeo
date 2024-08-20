@@ -1,6 +1,4 @@
-[![Linkedin](https://i.sstatic.net/gVE0j.png) LinkedIn]([![Linkedin](https://i.sstatic.net/gVE0j.png) LinkedIn](https://www.linkedin.com/)
-&nbsp;
-[![GitHub](https://i.sstatic.net/tskMh.png) GitHub](https://github.com/))
+[![Linkedin](https://i.sstatic.net/gVE0j.png) LinkedIn](www.linkedin.com/in/david-yeo-9263805/)
 &nbsp;
 [![GitHub](https://i.sstatic.net/tskMh.png) GitHub](https://github.com/)
 
